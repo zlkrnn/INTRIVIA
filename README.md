@@ -10,3 +10,6 @@ Selama rangkaian INTRIVIA saya mendapatkan banyak hal yang belum pernah saya dap
 
 ## Kesan Pesan Cluster 16 Sejauh Ini 
 Kesan selama di cluster 16 ini sangat baik. Disini saya bisa mengenal lebih dekat satu dengan yang lain, dari asal usulnya, kesukaannya, bahkan minat mereka selama di program studi Teknik Informatika. Saya dapat belajar banyak hal dari mereka terutama dari Mentor cluster saya yang adalah orang yang baik dan sangat disenangi. 
+
+## Harapan Kuliah 
+Dapat ipk 4.0
